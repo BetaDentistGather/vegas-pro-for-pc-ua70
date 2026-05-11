@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with premium Vegas Pro for PC | Vegas Pro for Windows Preset | timeline-editing + collaboration-tools, the #1 preset. Includes
 
 
 
